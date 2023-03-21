@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **Testing Basics**
 
-- 📫 How to reach me **khapare742gmail.com**
+- 📫 How to reach me **khapare74@gmail.com**
 
 - ⚡ Fun fact **I love play Snooker**
 
